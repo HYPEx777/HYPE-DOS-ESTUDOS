@@ -1,1 +1,0 @@
-# HYPE-DOS-ESTUDOS
